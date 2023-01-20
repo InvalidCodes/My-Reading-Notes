@@ -1,4 +1,5 @@
 ## What Life Should Mean to You 自卑与超越
+> Alfred Adler
 
 ### 家庭的影响
 
