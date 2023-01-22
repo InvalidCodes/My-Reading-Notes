@@ -1,5 +1,9 @@
 ## What Life Should Mean to You 自卑与超越
 > Alfred Adler
+>
+> Reading Time: 2021/01
+
+
 
 ### 家庭的影响
 
